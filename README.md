@@ -1,2 +1,2 @@
-# Discord-Bot-Codes
-I will upload some discord bots here which is free to use.
+# Join our community!
+Let's get 1K members here [Discord Server(click me)](https://discord.gg/EJjJZzZZTH)
